@@ -10,4 +10,4 @@
 
 本站为您提供最新热播高清电影，涵盖从AV无码到午夜欧美精品的多种类型，满足您不同的观影需求。所有资源均支持高清播放、秒速加载，无广告干扰，确保您畅享顺畅、高清的观影体验。随时随地，您都可以轻松观看。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/lvs20250708/lvs13 ）</span>
